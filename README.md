@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sivaprathap..
 - 👀 I’m interested in computers and technology...
 - 🌱 I’m currently bachelor of engineering..
-- 💌 sivaprathapdev765@gmail.com
+- 💌 sivaprathap567@gmail.com
 - 📫 How to reach me -using social media accounts
 -  https://twitter.com/Sivadev567
 
